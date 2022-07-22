@@ -1,7 +1,7 @@
 Oi, sou Maurici Imroth e moro em Blumenau/SC.
 Estou interessado em trabalhar como programador e adquirir habilidades para me tornar um bom desenvolvedor.
 
-Atualmente estou estudando Java pelo programa Entra21-Blusoft, edição 2022.
+Atualmente estudando Java pelo programa Entra21-Blusoft, edição 2022.
 
 Tenho experiências que diferenciam meu modo de pensar e agir.
 Arquiteto e Urbanista desde 2005 e empresário a partir de 2013.
