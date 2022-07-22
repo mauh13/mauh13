@@ -3,7 +3,7 @@ Estou interessado em trabalhar como programador e adquirir habilidades para me t
 
 Atualmente estou estudando Java pelo programa Entra21-Blusoft, edição 2022.
 
-Tenho experiências que difereenciam meu modo de pensar e agir.
+Tenho experiências que diferenciam meu modo de pensar e agir.
 Arquiteto e Urbanista desde 2005 e empresário a partir de 2013.
 
 Atuei como síndico condominial (2011-2013), trabalhei como auxiliar administrativo (2005-2010) 
